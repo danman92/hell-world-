@@ -1,1 +1,1 @@
-# hell-world-
+My names is Dan Stephenson, I'm from Northwest Indiana in Crown Point  which is 45 minutses outside of Chicago. Some hobbies I like to do is hang with friends, go new advernturs, go and watch sporting events, camp. # hell-world-
